@@ -1,1 +1,0 @@
-# hisolmex.github.io
